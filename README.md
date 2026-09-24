@@ -225,4 +225,4 @@ Dragon's Dogma 2 is offered as a full free version with all features and updates
 Ready to embark on your epic adventure? Download Dragon's Dogma 2 today and experience the thrill of the hunt!
 
 ---
-**Last updated:** 2026-09-24 10:52:04 UTC
+**Last updated:** 2026-09-24 15:38:37 UTC
